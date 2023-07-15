@@ -1,4 +1,4 @@
-### Olá! eu sou Alexandre Nascimento
+### Olá! Eu sou o Alexandre Nascimento
 
   ##
 <div>
